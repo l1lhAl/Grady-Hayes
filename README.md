@@ -4,7 +4,7 @@
 * Height, ? (will update later)
 * Pronouns, He/him
 * Chumhandle, malaiseMessiah (bc he WOULD call himself a messiah. ...ironically.)
-* Typing quirk, ---double hyphens before everything, Because hes a guy muttering sarcastic shit under his breath at all times. Aa= AA Oo= 00 Ss= Zz Ii= 11 
+* Typing quirk, ---double hyphens before everything, Because hes a guy muttering sarcastic shit under his breath at all times. || Aa=AA Oo=00 Ss=Zz Ii=11 ||
 I know he is a kid and not a troll but i wanted to use typing quirks. I asked people if its wrong and they said its fine so...yeah.
 
 How would he be like?,
