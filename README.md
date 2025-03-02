@@ -20,7 +20,7 @@ Grady is the last one to join the game. The kind of kid who gets added to the gr
 
 **- His Symbol,**
 *A Fading Eye*
-A fading eye could symbolize how Grady’s trying to see the world for what it is, but everything is blurry and he’s exhausted. Maybe it’s a hollow eye with some messy, glitchy streaks around it, suggesting that seeing things clearly is a struggle
+A fading eye (with sun rays around) is symbolize of how Grady’s trying to see the world for what it is, but everything is blurry and he’s exhausted. Maybe it’s a hollow eye with some messy, glitchy streaks around it, suggesting that seeing things clearly is a struggle. The sun rays is for the anger he keeps inside.
 
 **- His room/Personal Space,**
 Grady’s whole situation with his room really mirrors his internal struggle. He’s too tired and worn out to put in the effort to clean up, but he still has that innate desire to control his surroundings, and the messiness eats at him. It’s like he’s fighting against himself, wanting order but feeling too mentally drained to do anything about it.
