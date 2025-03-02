@@ -12,7 +12,7 @@ Grady is one of those kids who's too smart but in all the wrong ways. The kind o
 
 His whole deal is rage disguised as apathy. He acts like nothing matters, but it's because he's so pissed off at how much everything actually does matter to him. The hoodie? Permanent. Eye bags? Built into his character sprite. Sleep? Not in this lifetime.
 
-Lore Drop,
+Lore Drop (kind of),
 Grady Hayes was always one of those kids who figured out the world was bullshit way too early. The kind of kid who realized adults were just winging it by the time he was like... eight. He stopped believing in God on a random Tuesday and didn't even tell anyone. He just quietly filed it away like yeah, that makes sense.
 
 Why Is He in Sburb?
@@ -25,4 +25,4 @@ A fading eye could symbolize how Grady’s trying to see the world for what it i
 His room/Personal Space,
 Grady’s whole situation with his room really mirrors his internal struggle. He’s too tired and worn out to put in the effort to clean up, but he still has that innate desire to control his surroundings, and the messiness eats at him. It’s like he’s fighting against himself, wanting order but feeling too mentally drained to do anything about it.
 
-The idea that he gets mad if someone else tries to clean is perfect, too—his room is a private little world, and no one is allowed to interfere with his chaos. It's almost like an extension of his mind, a place where everything is disorganized, but only he knows where things really go. It's part of his control over things, even if it seems like he's lost control altogether.
+He gets mad if someone else tries to clean, too—his room is a private little world, and no one is allowed to interfere with his chaos. It's almost like an extension of his mind, a place where everything is disorganized, but only he knows where things really go. It's part of his control over things, even if it seems like he's lost control altogether.
