@@ -8,7 +8,7 @@
 I know he is a kid and not a troll but i wanted to use typing quirks. I asked people if its wrong and they said its fine so...yeah.
 
 How would he be like?,
-Grady is one of those kids who's too smart but in all the wrong ways. The kind of guy who read Nietzsche at 14, not because anyone told him to, but because he found a PDF on some shady website at 3AM and thought, yeah this feels right. He absolutely has that whole self-aware, ironic asshole energy — like he knows he's a walking stereotype, but instead of trying to break out of it, he leans into the spiral out of spite.
+Grady is one of those kids who's too smart but in all the wrong ways. The kind of guy who read Nietzsche at 14, not because anyone told him to, but because he found a PDF on some shady website at 3AM and thought, "---yeAh th1z feelz r1ght". He absolutely has that whole self-aware, ironic asshole energy — like he knows he's a walking stereotype, but instead of trying to break out of it, he leans into the spiral out of spite.
 
 His whole deal is rage disguised as apathy. He acts like nothing matters, but it's because he's so pissed off at how much everything actually does matter to him. The hoodie? Permanent. Eye bags? Built into his character sprite. Sleep? Not in this lifetime.
 
