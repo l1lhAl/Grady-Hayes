@@ -30,3 +30,7 @@ He gets mad if someone else tries to clean, too—his room is a private little w
 **Images,**
 
 ![Image](https://github.com/user-attachments/assets/cc4fea2b-be32-4697-ae39-b3229a9921c0) ![Image](https://github.com/user-attachments/assets/f6ee888c-53b3-4d50-bfa7-1b0a6695270a)
+
+**Voice Claim,**
+
+https://github.com/user-attachments/assets/a601c3d1-8f52-464f-8a1f-6f4a918cf80a
