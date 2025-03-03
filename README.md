@@ -1,7 +1,7 @@
 ## Homestuck OC !!
 * **Name,** Grady Hayes
 * **Age,** 14
-* **Height,** ? (will update later)
+* **Height,** 5'3" (160?cm)
 * **Pronouns,** He/him
 * **Chumhandle,** malaiseMessiah (bc he WOULD call himself a messiah. ...ironically.)
 * **Typing quirk,** ---double hyphens before everything, Because hes a guy muttering sarcastic shit under his breath at all times. || Aa=AA Oo=00 Ss=Zz Ii=11 ||
