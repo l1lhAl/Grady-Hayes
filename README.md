@@ -28,4 +28,5 @@ Grady’s whole situation with his room really mirrors his internal struggle. He
 He gets mad if someone else tries to clean, too—his room is a private little world, and no one is allowed to interfere with his chaos. It's almost like an extension of his mind, a place where everything is disorganized, but only he knows where things really go. It's part of his control over things, even if it seems like he's lost control altogether.
 
 **Images,**
+
 ![Image](https://github.com/user-attachments/assets/cc4fea2b-be32-4697-ae39-b3229a9921c0) ![Image](https://github.com/user-attachments/assets/f6ee888c-53b3-4d50-bfa7-1b0a6695270a)
