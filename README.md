@@ -13,7 +13,7 @@ Grady is one of those kids who's too smart but in all the wrong ways. The kind o
 His whole deal is rage disguised as apathy. He acts like nothing matters, but it's because he's so pissed off at how much everything actually does matter to him. The hoodie? Permanent. Eye bags? Built into his character sprite. Sleep? Not in this lifetime.
 
 **- Lore Drop (kind of),**
-Grady Hayes was always one of those kids who figured out the world was bullshit way too early. The kind of kid who realized adults were just winging it by the time he was like... eight. He stopped believing in God on a random Tuesday and didn't even tell anyone. He just quietly filed it away like yeah, that makes sense.
+Grady Hayes was always one of those kids who figured out the world was bullshit way too early. The kind of kid who realized adults were just winging it by the time he was like... eight. He stopped believing in God on a random Tuesday and didn't even tell anyone. He just quietly filed it away.
 
 **- Why Is He in Sburb?**
 Grady is the last one to join the game. The kind of kid who gets added to the group chat five minutes before the Reckoning kicks off because someone said, oh yeah, we need one more player. He didn't even want to play. He barely even talks to the others outside of sending cryptic messages at weird hours.
