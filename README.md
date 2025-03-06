@@ -25,7 +25,7 @@ A fading eye (with sun rays around) is symbolize of how Grady’s trying to see 
 **- His room/Personal Space,**
 Grady’s whole situation with his room really mirrors his internal struggle. He’s too tired and worn out to put in the effort to clean up, but he still has that innate desire to control his surroundings, and the messiness eats at him. It’s like he’s fighting against himself, wanting order but feeling too mentally drained to do anything about it.
 
-He gets mad if someone else tries to clean, too—his room is a private little world, and no one is allowed to interfere with his chaos. It's almost like an extension of his mind, a place where everything is disorganized, but only he knows where things really go. It's part of his control over things, even if it seems like he's lost control altogether.
+He gets mad if someone else tries to clean, too—his room is a private little world, and no one is allowed to interfere with his chaos. It's almost like an extension of his mind, a place where everything is disorganized, but only he knows where things really go. It's part of his control over things, even if it seems like he's lost control altogether. (totally didn't inspired by me :p)
 
 **Images,**
 
